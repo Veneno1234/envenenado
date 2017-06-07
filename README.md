@@ -1,0 +1,2 @@
+# envenenado
+a pessoa morreu
